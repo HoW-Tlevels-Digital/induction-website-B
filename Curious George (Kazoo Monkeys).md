@@ -1,6 +1,5 @@
 # **Curious George**
 ## **The Sweet African Monkey**
-## A playful one at that
 
 ![Curious George](https://static.wikia.nocookie.net/poohadventures/images/d/d8/Curious_George.png/revision/latest?cb=20210123050705)
 
