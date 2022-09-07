@@ -7,6 +7,6 @@ Orangutans:
 -Have long, powerful arms,
 -Have big, grasping hands for extended reach,
 -They share 94% of our genes making them highly intelligent,
-
+![image](https://d.newsweek.com/en/full/1549796/sumatran-orangutan.jpg)
 ## History of the orangutan:
 the name orangutan translated into "orange man" in the ancient malay language
