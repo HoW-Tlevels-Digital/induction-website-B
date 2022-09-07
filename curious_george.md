@@ -1,7 +1,7 @@
 # **Curious George**
 ## **The Sweet African Monkey**
 
-![Curious George](https://static.wikia.nocookie.net/poohadventures/images/d/d8/Curious_George.png/revision/latest?cb=20210123050705)
+![Curious George](https://www.clipartkey.com/mpngs/m/229-2292412_mq-courious-george-monkey-banana-curious-george-a.png)
 
 This bundle of trouble is George, Curious George. The friend of the Man in the Yellow Hat causes many difficulties and has many attributes.
 These traits include:
