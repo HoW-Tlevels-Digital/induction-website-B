@@ -1,7 +1,7 @@
 # **_Spider Monkey_**
 ## **_A Friendly Monkey_**
 
-![Spider Monkey](https://static.wikia.nocookie.net/wildlife-animal-pedia/images/4/40/Geoffroy%27s_Spider_Monkey.png/revision/latest?cb=20181129185346)
+![Spider Monkey](https://www.independent.ie/incoming/492fb/34939976.ece/AUTOCROP/w1240h700/p8monkey.jpg)
 
 This little monkey is very cheeky, it can climb to high places and run into small places with its very small body.
 
